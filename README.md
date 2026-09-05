@@ -8,3 +8,15 @@
 > **Bodily minor (13-15)**
 
 > **Best viewed on computer/PC!**
+
+ <details open>
+  <summary>PONY TOWN INFO</summary>
+  
+  Ask to cuddle/cover
+  
+  Ask to boop
+  
+  Preferably w2i!
+  
+  Introjects will often cosplay themselves but before pursuing an interaction please ask who's fronting and what their pronouns are just incase.
+ </details>
