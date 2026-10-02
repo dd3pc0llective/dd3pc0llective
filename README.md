@@ -4,7 +4,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://preview.redd.it/what-did-plurality-flag-do-you-guys-use-v0-gu4pyn2v8ejg1.png?width=2048&format=png&auto=webp&s=02405158f92758c46ffb2b10abe9dd5a02231e12" width="90" height="50"> <img src="https://static.wikia.nocookie.net/alterhumanity/images/2/2a/Fictionkin.jpg/revision/latest?cb=20231228183917" width="90" height="50"> <img src="https://preview.redd.it/abinary-flag-redesigns-v0-4w0r38z2696g1.jpg?width=1080&crop=smart&auto=webp&s=3217264fce8491eca7f5f1b7f0dc54c9b976fd62" width="90" height="50">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[PRONOUNS.CC](https://pronouns.cc/@dd3p)ㅤㅤㅤㅤㅤㅤㅤ,ㅤㅤㅤㅤㅤㅤㅤ[ATABOOK](https://nevermore.atabook.org/)ㅤㅤㅤㅤㅤㅤㅤ,ㅤㅤㅤㅤㅤㅤㅤ[PLURALKIT](https://pluralkit.xyz/f/gsczzg?)
+[PRONOUNS.CC](https://pronouns.cc/@dd3p)ㅤㅤㅤㅤㅤㅤㅤ,ㅤㅤㅤㅤㅤㅤㅤ[ATABOOK](https://nevermore.atabook.org/)ㅤㅤㅤㅤㅤㅤㅤ,ㅤㅤㅤㅤㅤㅤㅤ[PLURALKIT](https://pluralkit.xyz/f/gsczzg?)ㅤㅤㅤㅤㅤㅤㅤ,ㅤㅤㅤㅤㅤㅤㅤ[DISCORD](https://discordapp.com/users/995899677960589413)
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**Bodily minor (14-16)**
