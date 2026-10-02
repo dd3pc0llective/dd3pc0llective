@@ -7,7 +7,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[PRONOUNS.CC](https://pronouns.cc/@dd3p)ㅤㅤㅤㅤㅤㅤㅤ,ㅤㅤㅤㅤㅤㅤㅤ[ATABOOK](https://nevermore.atabook.org/)ㅤㅤㅤㅤㅤㅤㅤ,ㅤㅤㅤㅤㅤㅤㅤ[PLURALKIT](https://pluralkit.xyz/f/gsczzg?)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**Bodily minor (13-15)**
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**Bodily minor (14-16)**
 
 > ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**Best viewed on computer/PC!**
 
