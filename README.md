@@ -21,7 +21,7 @@
   Introjects will often cosplay themselves but before pursuing an interaction please ask who's fronting and what their pronouns are just incase.
  </details>
 
-ㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ<img src="https://64.media.tumblr.com/05dd10536964d6d123d2d1b202426596/09c7fb3b70c1d2ae-56/s100x200/f4ffc1fa053c3d70b061e238b6f6c8af95ecd99c.gifv" width="200" height="100"> <img src="https://64.media.tumblr.com/8a53c24f04de872eb629f01935575b50/85080a124e651279-65/s250x400/41edbe4ab8136ac4927f2035bbb6cdff927361be.gifv" width="200" height="100"> <img src="https://64.media.tumblr.com/b0ecb20b0637b02f3c1e57431a706c32/09c7fb3b70c1d2ae-02/s100x200/a909437ee38d2a8a396425e10229850ed7ecd11b.gifv" width="200" height="100">
+ㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤ ㅤ<img src="https://64.media.tumblr.com/05dd10536964d6d123d2d1b202426596/09c7fb3b70c1d2ae-56/s100x200/f4ffc1fa053c3d70b061e238b6f6c8af95ecd99c.gifv" width="200" height="100"> <img src="https://64.media.tumblr.com/8a53c24f04de872eb629f01935575b50/85080a124e651279-65/s250x400/41edbe4ab8136ac4927f2035bbb6cdff927361be.gifv" width="200" height="100"> <img src="https://64.media.tumblr.com/b0ecb20b0637b02f3c1e57431a706c32/09c7fb3b70c1d2ae-02/s100x200/a909437ee38d2a8a396425e10229850ed7ecd11b.gifv" width="200" height="100">
 
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤ<img src="https://64.media.tumblr.com/1eb5112a61f8445fcac325688c5a5fe5/8b15e09375bb13f7-a9/s400x600/848fe4f10a2088502cecae2d34dceb037890648a.pnj" width="555" height="35">
 > Best viewed on computer/PC!
